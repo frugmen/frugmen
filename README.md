@@ -1,4 +1,4 @@
-I'm never one to half ass some shenanigans
+I've never been one to half ass shenanigans
 
 <!---
 frugmen/frugmen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
